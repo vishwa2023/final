@@ -1,2 +1,2 @@
-hello world how r u 
+hello what 
 what is going on y this os 
